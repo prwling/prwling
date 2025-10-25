@@ -1,16 +1,14 @@
-## Hi there 👋
+#### mio's in~fo *!*
 
-<!--
-**prwling/prwling** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+(˶˃ ᵕ ˂˶) .ᐟ.ᐟ  ♡ !
+![ezgif-807bf21d36cf30](https://github.com/user-attachments/assets/02545cec-3f2a-4d2b-ba79-ab716fa21dd4)
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+               Haiiii 'm mio but u can call me ryu or nevan aswell ++
+
+               I *LOVE* having friends please interact withme I promise im the kindest person ever
+               
+               I'm 15 an' while I dont really have a dni i BEG for you to not interact with me if ur 13 or something lol 
+
+               my oomfs :: @yandere3 @imperiumroma @okuroun @theappriser 
+              best pals:: kuji , nic , tilly , ju , abi , gray 
