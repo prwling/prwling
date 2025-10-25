@@ -10,5 +10,5 @@
                
                I'm 15 an' while I dont really have a dni i BEG for you to not interact with me if ur 13 or something lol 
 
-               my oomfs :: @yandere3 @imperiumroma @okuroun @theappriser 
+               
               best pals:: kuji , nic , tilly , ju , abi , gray 
