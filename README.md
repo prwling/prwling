@@ -11,4 +11,4 @@
                I'm 15 an' while I dont really have a dni i BEG for you to not interact with me if ur 13 or something lol 
 
                
-              best pals:: kuji , nic , tilly , ju , abi , gray 
+            
