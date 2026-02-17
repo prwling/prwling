@@ -4,7 +4,7 @@
 ![ezgif-807bf21d36cf30](https://github.com/user-attachments/assets/02545cec-3f2a-4d2b-ba79-ab716fa21dd4)
 
 
-               Haiiii 'm mio but u can call me ryu or nevan aswell ++
+               Haiiii 'm mio but u can call me ryu or arashi aswell ++
 
                I *LOVE* having friends please interact withme I promise im the kindest person ever
                
